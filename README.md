@@ -16,4 +16,4 @@
   - Google (parece que seguimos dormidos)
   - Empresas que fucionen la ingeniería y la informática.
 
- ![Un futuro inevitable](https://www.sicma21.com/wp-content/uploads/2021/12/ventajas-de-la-software-factory-848x300.png)
+ ![Un futuro inevitable](https://images.pexels.com/photos/169573/pexels-photo-169573.jpeg)
