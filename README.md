@@ -16,4 +16,4 @@
   - Google (parece que seguimos dormidos)
   - Empresas que fucionen la ingeniería y la informática.
 
- ![Un futuro inevitable](https://images.pexels.com/photos/169573/pexels-photo-169573.jpeg)
+ ![Un futuro inevitable](https://images.pexels.com/photos/169573/pexels-photo-169573.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=1)
